@@ -1,0 +1,2 @@
+# enes.adgzl
+Mavi tik
